@@ -1,0 +1,1 @@
+# ParaPRZEKAZNIK-pcb
